@@ -1,13 +1,14 @@
 # Elena Shoshina
 
-
+![photo](https://pbs.twimg.com/media/FUa1ChVWYAAhXcE?format=png&name=360x360)
 
 ## Contact Information  
 **Phone:** +79996430833  
 **Email:** elshoshina@gmail.com  
 **Skype:** elenashoshina  
 **Discord:** Travikus@Travikus  
-
+[LinkedIn](https://www.linkedin.com/in/elena-shoshina-566756bb/)  
+[Codewars](https://www.codewars.com/users/Travikus) 
 
 
 Working as a teacher of English brought up responsibility and high adaptability within me. The success of my work can be measured in my former and current students having moved to other countries or/and entered the desired universities. 
